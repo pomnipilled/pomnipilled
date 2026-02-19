@@ -17,7 +17,7 @@
 <p align="center">pomni fictkin,</p> 
                          
     
-  . ㅤㅤ ㅤㅤ  ㅤ  ㅤㅤ    .ㅤㅤ ㅤㅤ  ㅤ  ㅤㅤ  ㅤ ㅤㅤ  ㅤ.   ㅤ    ㅤ  ㅤㅤ ㅤㅤ  ㅤ  ![dirty](https://github.com/user-attachments/assets/842801df-718b-4bdc-b943-5ab464d10232)
+  . ㅤㅤ ㅤㅤ  ㅤ  ㅤㅤ    .ㅤㅤ ㅤㅤ  ㅤ  ㅤㅤ  ㅤ ㅤㅤ  ㅤ.   ㅤ    ㅤ ㅤ ㅤㅤ ㅤㅤ  ㅤ  ![dirty](https://github.com/user-attachments/assets/842801df-718b-4bdc-b943-5ab464d10232)
 
 <p align="center"><a href="https://klittylitter.straw.page/products/item-id-7">strawpage</a> ∙ <a href="https://pomnipilled.atabook.org/products/item-id-7">ata</a></p>
 
