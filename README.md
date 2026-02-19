@@ -21,4 +21,4 @@
 
 <p align="center"><a href="https://klittylitter.straw.page/products/item-id-7">strawpage</a> ∙ <a href="https://pomnipilled.atabook.org/products/item-id-7">ata</a></p>
 
-  . ㅤㅤ ㅤㅤ . ㅤ ㅤ . ㅤ  ![31ebe800031aab7a482e21d9dfd947d5](https://github.com/user-attachments/assets/5fc63e06-f7d5-49bb-8414-9680da12fbdc)
+  . ㅤㅤ ㅤㅤ . ㅤ ㅤ .ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ  ![31ebe800031aab7a482e21d9dfd947d5](https://github.com/user-attachments/assets/5fc63e06-f7d5-49bb-8414-9680da12fbdc)
