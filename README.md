@@ -1,11 +1,9 @@
 ![20260218_210115](https://github.com/user-attachments/assets/bc9935c1-bb92-41c3-ab8b-233073d4a3e5)
 
-٤♡ hai ! im pomni, also known as klittylitter, daisy, miav, or heidi!
+٤♡   . ㅤㅤ ㅤㅤ .  she/they
 
-         . <img width="537" height="139" alt="faf061c5fd83b09cea989a66bb52b29f-removebg-preview copy" src="https://github.com/user-attachments/assets/bb04a373-bf16-4257-ad1c-e881c04b0e58" />
+. ㅤㅤ ㅤㅤ .  omnisexual
 
-pomni fictkin, proship dni.
-don't copy or take inspo from me pls!
+. ㅤㅤ ㅤㅤ  . ㅤㅤ ㅤㅤ .  pomni fictkin,
 
-
-![dirty](https://github.com/user-attachments/assets/e687d77d-d3d3-4da4-bdbe-b902cb4f8e04)
+   ![dirty](https://github.com/user-attachments/assets/d49f9f56-2ce7-4195-a7d1-6fa4d6bec9d8)
