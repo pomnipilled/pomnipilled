@@ -21,4 +21,4 @@
 
 <p align="center"><a href="https://klittylitter.straw.page/products/item-id-7">strawpage</a> ∙ <a href="https://pomnipilled.atabook.org/products/item-id-7">ata</a></p>
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F78B47&center=true&width=435&lines=''+%F0%9D%94%B4%F0%9D%94%A2%F0%9D%94%A9%F0%9D%94%A9+%F0%9D%94%A6%F0%9D%94%B1%F0%9D%94%B0+%F0%9D%94%AD%F0%9D%94%AC%F0%9D%94%B0%F0%9D%94%B0%F0%9D%94%A6%F0%9D%94%9F%F0%9D%94%A9%F0%9D%94%A2%2C+''+%E2%80%93+" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F78B47&center=true&vCenter=true&width=435&lines=''+%F0%9D%94%B4%F0%9D%94%A2%F0%9D%94%A9%F0%9D%94%A9+%F0%9D%94%A6%F0%9D%94%B1%F0%9D%94%B0+%F0%9D%94%AD%F0%9D%94%AC%F0%9D%94%B0%F0%9D%94%B0%F0%9D%94%A6%F0%9D%94%9F%F0%9D%94%A9%F0%9D%94%A2%2C+''+%E2%80%93+" alt="Typing SVG" /></a>
